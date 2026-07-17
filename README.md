@@ -1,1 +1,1 @@
-Ganador: Isaac Rogelio Gonzalez Zavala 
+Ganador:  Isaac Rogelio Gonzalez Zavala
